@@ -1,3 +1,6 @@
+![The Strokes - Ode To The Mets (Official Video) mkv_000558 177](https://user-images.githubusercontent.com/71170622/162348278-ec3efe4d-0d4d-4371-9d4b-476394eac796.jpg)
+
+
 “우리는 이제야 겨우 지구 위에서 우주의 거대한 공간과 그 역사의 규모에 대해 깨닫기 시작했습니다.  
 이제 우리는 우리의 몸과 머리 속에 150억년간 내려온 우주진화의 유산을 압축해서 지니게 됐습니다.  
 우리를 만들어준 우주를 더 깊이 깨닫을 기회를 가질 수도 있고  
